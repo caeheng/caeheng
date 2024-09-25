@@ -8,7 +8,7 @@ i go by any/pronouns, and i'm pansexual genderfluid
 
 ～～～～🍁💫～～～～
 
-you could usually find me on the **genshin area**, **docks**, or the **bakery's patio**.
+you could usually find me on the **genshin area**, **docks**, **bakery's patio**, or the **dandy's world area**.
 
 c+h are strictly closed off to friends unless stated otherwise! i rarely interact with anyone so bare with me (IIIu_u)
 
